@@ -1,2 +1,2 @@
-# tanushahande-task3-internship-
+# tanushahande-task3 and task 6-internship-
 Repo
